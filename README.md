@@ -1,6 +1,6 @@
 ## Hi, I’m Mateus! It's nice to see you here.
 
-I've worked in many different departments: Marketing, Operations, User Support, Project Management and CRM! But I always liked working with data, Analyzing and seeing what they have to tell me and also, why not, tell a story with them. And here I am, looking to use the data to discover the mysteries of the universe!!
+I've worked in many different departments: Marketing, Operations, User Support, Project Management and CRM! But I always liked working with data, Analyzing and seeing what they have to tell me and also and why not, tell a story with them, And here I am, looking to use the data to discover the mysteries of the universe!!
 
 
 ##
